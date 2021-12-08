@@ -2,4 +2,4 @@
 
 costam 
 
-costam jeszcze 
+costam jeszcze!
